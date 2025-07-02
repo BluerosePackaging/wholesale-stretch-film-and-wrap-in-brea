@@ -1,4 +1,4 @@
-# wholesale-stretch-film-and-wrap-in-brea | Bluerose Packaging
+# Wholesale Stretch Film and Wrap in Brea | Bluerose Packaging
 
 Get wholesale stretch film and wrap in Brea from Bluerose Packaging. Secure your shipments with durable, industrial -grade stretch wrap available in bulk at competitive prices. Request a quote today for fast delivery.
 
